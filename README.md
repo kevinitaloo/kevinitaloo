@@ -1,0 +1,5 @@
+- 👋 Olá, eu sou: @kevinitaloo
+- 👀 Sei um pouco de cada linguagem!
+- 🌱 HTML e JS são as minhas favoritas.
+- 💞️ Amo ajudar as pessoas com dificuldades em seus codigos
+- 📫 IG: @felpsxzy7
